@@ -1,4 +1,4 @@
-##bem vindo ao perfil da xzcisa##
+##bem vindo ao perfil da xzcisa
 -"Cinthia o Nascimento Eurich"
 
 📚 Eu estudo no colégio Estadual Neide Bertasso Beraldo -🎳tenho 16 ano -📘Estudo mo 1 ANO DO Enino médio
